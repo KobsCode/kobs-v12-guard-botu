@@ -2,7 +2,7 @@
 
 > **`Hepinize Merhaba Arkadaşlar Bu Videoda Yeni Hazırladığımız V12 Guard Botunu Tanıttım,İyi Seyiler Diliyorum Tekrardan. Bu Tarz Videoların Devamı İçin Videoya Like ve Yorum Atmayı Unutmayın`**
 
-> [Videoya Gitmek İçin Tıkla](https://youtu.be/nNCBJ0rc3ok) 
+> [Videoya Gitmek İçin Tıkla](https://youtu.be/gviWv0rhzq8) 
 
 > [Discord Sunucusuna Katılmak İçin Tıkla](https://discord.gg/axjXvA9cCa)
 
